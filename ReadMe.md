@@ -1,1 +1,1 @@
-Hi there 😄
+I am a PhD student at the CLiPS research centre under the supervision of Prof Steven Gillis and Prof Jo Verhoeven. My research has two main focuses: methodological questions in speech sciences and the acoustics of babbling and early word production in typically developing children and children with hearing impairments. My research approach is mainly quantitative and inspired by laboratory phonology.
